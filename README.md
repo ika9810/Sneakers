@@ -61,3 +61,13 @@ Size : 295
 상태 : 미보유
 
 링크 : [https://kream.co.kr/products/38367?size=295](https://kream.co.kr/products/38367?size=295)
+- **Nike x Off-White Dunk Low The 50 - Lot 46**
+
+Size : 300
+
+가격 : **460,000원**(2021/10/12 Kream 기준)
+
+상태 : 미보유
+
+링크 : [https://kream.co.kr/products/39170?size=300](https://kream.co.kr/products/39170?size=300
+)
